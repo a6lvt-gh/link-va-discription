@@ -25,3 +25,5 @@ Discord:https://discord.gg/Ds4SXC43Hy
 (1 lần/ 3 tháng):mailto:a6.lvt.nienkhoa2428@gmail.com
 
 # Chuyện:
+
+Các cậu có thể gửi chuyện cho chúng tớ qua link này: https://forms.gle/LuQYGs7KD6VKHZaX8
