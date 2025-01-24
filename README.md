@@ -1,4 +1,4 @@
-# Link và mô tả
+# Link và mô tả, và 1 số chuyện trong lớp
 
 Đây là nơi chúng tớ để những link và thông báo
 
@@ -23,3 +23,5 @@ Discord:https://discord.gg/Ds4SXC43Hy
 (1 lần/ tháng):mailto:a6_lvt_nienkhoa_2024_2028@protonmail.com
 
 (1 lần/ 3 tháng):mailto:a6.lvt.nienkhoa2428@gmail.com
+
+# Chuyện:
