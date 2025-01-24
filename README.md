@@ -16,6 +16,8 @@ Instagram:https://www.instagram.com/a6_lvt?igsh=aTJremdvdW54am93
 
 Twitter (X):https://x.com/a6_lvt_2428
 
+Discord:https://discord.gg/Ds4SXC43Hy
+
 # Gửi mail:
 
 (1 lần/ tháng):mailto:a6_lvt_nienkhoa_2024_2028@protonmail.com
