@@ -28,6 +28,6 @@ Bluesky:https://bsky.app/profile/a6-lvt-bluesky.bsky.social
 
 # Chuyện:
 
-Các cậu có thể gửi chuyện cho chúng tớ qua link này: https://forms.gle/LuQYGs7KD6VKHZaX8
+Các cậu có thể gửi chuyện cho chúng tớ qua link này: (Google Forms) https://forms.gle/LuQYGs7KD6VKHZaX8
 
-                                                    https://www.reddit.com/r/levantam/
+Các cậu có thể gửi chuyện cho chúng tớ qua link này: (Reddit) https://www.reddit.com/r/levantam/
