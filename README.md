@@ -18,6 +18,8 @@ Twitter (X):https://x.com/a6_lvt_2428
 
 Discord:https://discord.gg/Ds4SXC43Hy
 
+Bluesky:https://bsky.app/profile/a6-lvt-bluesky.bsky.social
+
 # Gửi mail:
 
 (1 lần/ tháng):mailto:a6_lvt_nienkhoa_2024_2028@protonmail.com
